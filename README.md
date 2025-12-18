@@ -19,7 +19,7 @@ I’m Alves, a six-teen years old student from Brazil 😄
 
 Not working into anything special right now, but i am always doing project and posting here 🌱
 
-For coding i use a very productive tool called cursor, that has beeing great for the projects ⚡
+For coding i use VsCode ⚡
 
 You may reach me through my social media like instagram, or through my LinkedIn account	 📫
 
