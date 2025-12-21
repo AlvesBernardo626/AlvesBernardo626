@@ -21,7 +21,7 @@ Not working into anything special right now, but i am always doing project and p
 
 For coding i use VsCode ⚡
 
-You may reach me through my social media like instagram, or through my LinkedIn account	 📫
+You may reach me through my social media like instagram, or my LinkedIn account	 📫
 
 ---------------------------------------------------------------------------------------------
 
